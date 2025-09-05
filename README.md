@@ -2,7 +2,7 @@
 
 📌 **Welcome to kbzxa's profile** 📌
 ================================
-![](https://i.pinimg.com/736x/ec/94/ca/ec94cae95b8b28b5a59bc51a3f8e7f56.jpg)
+![](https://i.pinimg.com/1200x/20/8c/7b/208c7b5920734c58f1dd42e65400099d.jpg)
  
 ![Static Badge](https://img.shields.io/badge/Gmail-pratsdominguezcarlos%40gmail.com-FFFFFF?style=flat&logo=gmail&color=EA4335)
 ![Static Badge](https://img.shields.io/badge/Linkedin-carlospratsdominguez-0e76a8?style=flat&logo=lospec)
