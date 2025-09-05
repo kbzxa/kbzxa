@@ -1,6 +1,6 @@
 <div align="center">
 
-📌 **Welcome to kbzxa's profile** 📌
+ **Welcome to kbzxa's GitHub Profile** 
 ================================
 ![](https://i.pinimg.com/1200x/20/8c/7b/208c7b5920734c58f1dd42e65400099d.jpg)
  
